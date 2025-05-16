@@ -23,4 +23,3 @@ I'm always open to learning, collaborating, and exchanging ideas!
 
 ---
 
-Feel free to ask me for help! Would you like me to do something? 😊
