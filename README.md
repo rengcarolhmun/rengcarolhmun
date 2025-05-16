@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rengcarolhmun
+- 👀 I’m interested in science and mathematic
+- 🌱 I’m currently learning computer science at uopeople
